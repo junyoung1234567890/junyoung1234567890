@@ -6,4 +6,3 @@ Quiero ir a **CASA**
 
 Do you know **KOREA DIGITAL MEDIA HIGH SCHOOL**?
 
-ㅁㄷ갸ㅕㅗㅁㄷㄹ갸ㅕㅣㄷㄺ미ㅕㄺ디ㅐㄷㄺㄴ
